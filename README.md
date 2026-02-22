@@ -1,1 +1,1 @@
-this is just a place i put my roblox stripts for getstring
+just a place i keep my roblox scripts and all at
